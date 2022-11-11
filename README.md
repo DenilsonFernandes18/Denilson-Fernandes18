@@ -1,1 +1,1 @@
-:computer: Denilson Fernandes :star: :tag:
+:computer: Denilson Fernandes :star:
